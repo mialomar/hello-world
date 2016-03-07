@@ -2,4 +2,4 @@
 
 Hi people
 
-I am Ms Alomar from Saudi Arabia currently studying in the US of A.
+I am Mialomar from planet Earth.
